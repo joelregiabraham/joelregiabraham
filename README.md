@@ -1,5 +1,5 @@
 # 💫 Hello, I'm Joel 👋
-I'm currently enrolled in Bachelor of Computer Science(Honours) Program<br>
+Bachelor of Computer Science(Honours) Program<br>
 
 
 ## 🌐 Socials:
